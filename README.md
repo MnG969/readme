@@ -6,7 +6,7 @@
 
 ##  About Me
 
-Hello! I’m Ms-WINTER, a passionate student and creative designer. I enjoy exploring the intersection of design and code, always eager to learn and try new things.
+Hello! I’m MnG, a passionate student and creative designer. I enjoy exploring the intersection of design and code, always eager to learn and try new things.
 
 ---
 
